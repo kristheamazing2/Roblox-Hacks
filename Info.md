@@ -1,4 +1,4 @@
-These hacks are all going to be made from https://github.com/jHAX7/all-jHAX7-and-kristheamazing2-blooket-hacks/blob/Blooket-jHAX-hacks/HomeScreen-and-Market%20hacks/See%20Peoples%20Blooks%20(updated%20by%20kristheamazing2)
+These hacks are all going to be made from https://github.com/jHAX7/all-jHAX7-and-kristheamazing2-blooket-hacks
 I worked by jHAX7 and finished the hacks with him
 Now I will be doing my own hacks
 If these hacks get you banned it is not my fault glizzxy and others peoples hack are here
