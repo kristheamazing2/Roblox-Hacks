@@ -1,6 +1,6 @@
 # kristheamazing2-blookethacks
 This is blooket hacks for anyone 
-these hacks are all going to be made from https://github.com/jHAX7/all-jHAX7-and-kristheamazing2-blooket-hacks
+most of these hacks are backup hacks from jHAX7 and kristheamazing2 hacks these hacks are all made from https://github.com/jHAX7/all-jHAX7-and-kristheamazing2-blooket-hacks
 i worked with jHAX7 and finished the hacks with him
 now I will be doing my own hacks
 if these hacks get you banned it is not my fault glizzxy and others peoples hack are here
